@@ -194,12 +194,10 @@ https://drive.google.com/drive/folders/1UAToG9RRDO_Uf4YAiCoQBmF64IKaNEnV?usp=sha
 
 ---
 
+<img width="1004" height="638" alt="Ekran görüntüsü 2025-12-17 005725" src="https://github.com/user-attachments/assets/c757b27f-a514-4ec7-bf02-f40803302a16" />
 
-<img width="1004" height="638" alt="Ekran görüntüsü 2025-12-07 165037" src="https://github.com/user-attachments/assets/31f6d705-212b-452e-a37a-10b91bf02231" />
+<img width="1001" height="635" alt="Ekran görüntüsü 2025-12-17 005746" src="https://github.com/user-attachments/assets/2023b365-5108-4b05-929d-c37b81570bdb" />
 
-<img width="1004" height="642" alt="Ekran görüntüsü 2025-12-07 165136" src="https://github.com/user-attachments/assets/ee14ed4e-b007-4f47-9d72-69178ed65f7e" />
-
-<img width="1008" height="640" alt="image" src="https://github.com/user-attachments/assets/46fc3084-41aa-4175-9aab-77740cf98357" />
 
 
 
